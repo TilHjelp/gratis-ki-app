@@ -1,4 +1,4 @@
-# Gratis KI App 2024: De Beste Kostnadsfrie AI-Verktøyene Akkurat Nå
+# Gratis KI App 2025: De Beste Kostnadsfrie AI-Verktøyene Akkurat Nå
 
 Kunstig intelligens (KI) trenger ikke å koste skjorta! Det finnes et overraskende stort utvalg av kraftige AI-verktøy du kan bruke helt uten å betale. Leter du etter den beste **gratis KI app** for tekst, bilder, oversettelse eller læring? Da har du kommet til rett sted.
 
